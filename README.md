@@ -1,2 +1,4 @@
 # zuzikan6.github.io
-moje ceckatý stránky
+
+dobwy den uwu
+jsem zuzeta suzeta a toto je můj supr dupr čupr github miau >w< <3333
